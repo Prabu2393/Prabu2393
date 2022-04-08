@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Prabu2393
+- 👀 I’m interested in Data Analyst role
+- 🌱 I’m currently learning Data Science course, it is going to end by july of this year
+- 📫 You can reach me at prabumuthukumar.23@gmail.com or call me at 9677425904
